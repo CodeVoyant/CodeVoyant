@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @CodeVoyant
+- 👀 I’m interested in Helping people code
+- 🌱 I’m currently Coding 
+- 💞️ I’m looking to collaborate on Youtube/Twitch/Tiktok
+- 📫 How to reach me: Tiktok: CodeVoyant or Email Code0Voyant@gmail.com
+- 😄 Pronouns: Him/he
+- ⚡ Fun fact: im a boy and currently learning coding while im still in school
